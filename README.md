@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @gkratsashvilifin
-- 👀 I’m interested in Indian Antient Wrestling (Oiled)
+- 👀 I’m interested in Antient Indian Wrestling (Oiled)
 - 🌱 I’m currently learning how to grow taller
 - 💞️ I’m looking to collaborate on some shady partially legal projects
 - 📫 How to reach me (dark web - @Mr.H4rd_t0_f1nd)
